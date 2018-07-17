@@ -2,4 +2,4 @@
 
 hi good people ! 
 
-i"am haveing difficulty to the thesis, please help me :(
+i"am having difficulty to the thesis, please help me :(
